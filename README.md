@@ -1,0 +1,1 @@
+# ijoist-framing-guide-111126g
